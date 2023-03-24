@@ -7,6 +7,3 @@ En el Manifiesto #EcoSocialTech defendemos:
 - Participación activa de las mujeres en la tecnología.
 - Defensa del software y hardware libre.
 - Fomento de la nueva ruralidad.
-
-
-Puedes unirte a la comunidad de Telegram a través de este enlace: https://t.me/+g42oOZ0SAu8xZGFk
